@@ -16,3 +16,9 @@
   
  ___
 
+## Chapter 3 
+  
+ But as the race continued, **Blaze** began to realize that there was more to life than speed. He saw how **Turbo** was taking the time to stop and _smell the flowers_ and _watch the birds_. **Blaze** has never taken the time to appreciate _the beauty of the forest_ before, as he was too focused on winning. 
+  
+ --- 
+ 
